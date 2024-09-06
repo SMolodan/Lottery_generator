@@ -1,1 +1,1 @@
-# Lottery_generator
+READ ME FASTTT!!!!!!!!!!!
